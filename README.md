@@ -1,8 +1,8 @@
 # Halo semua! 
 
-Perkenalkan nama saya **Theodorus Richard Anggarda**.\
+Perkenalkan nama saya **lBlanc**.
 
-Saya seorang **Siswa** di [Dicoding](https://www.dicoding.com/).\
+Saya seorang **Siswa** di [Dicoding](https://www.dicoding.com/).
 
 Saya senang photography, design, dan utak atik it.
 
