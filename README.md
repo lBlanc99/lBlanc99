@@ -2,7 +2,6 @@
 
 Perkenalkan nama saya **Theodorus Richard Anggarda**.
 
-Saya seorang **Siswa** di [Dicoding](https://www.dicoding.com/).
 
 Saya senang photography, design, dan utak atik it.
 
